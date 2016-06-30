@@ -1,6 +1,6 @@
 ## LOGOS: UNIVERSIDAD NACIONAL DEL CENTRO DEL PERÚ - UNCP
 
-![logo-uncp](http://i1144.photobucket.com/albums/o481/wizardx211/Logos%20uncp/logo-uncp-1%20by%20Joel%20Tinx_zpszgjekgic.png)
+![logo-uncp](http://i1144.photobucket.com/albums/o481/wizardx211/logo-uncp-0%20by%20Joel%20Tinx_zpsbdexnoic.png)
 
 ### SOBRE LA IDEA:
 La idea es sencilla, aquel que tenga algún vector o imagen de buena calidad puede compartirla por aquí para que todos puedan acceder a ella, la idea en el fondo es colaborar con los demás.
